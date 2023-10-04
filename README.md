@@ -1,2 +1,2 @@
-# ustad-fawad-khan
+# ustad-fawad-khan.github.io
 facebook
